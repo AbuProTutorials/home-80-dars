@@ -1,1 +1,1 @@
-# home-80-dars
+## eng muhimi barchasi siz aytgandek)
